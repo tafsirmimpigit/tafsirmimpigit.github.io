@@ -8,7 +8,7 @@ Kumpulan tafsir mimpi dan prediksi angka togel mimpi 2d 3d 4d, kode alam, erek e
 2. Angka Kode Alam Togel silahkan baca [Kode Alam](https://kodealams.blogspot.com)
 3. Nomor Erek Erek bisa kunjungi [Erek Erek](https://erek2.blogspot.com)
 4. Arti Mimpi Lengkap Menurut Para Ahli silahkan mampir ke [ArtiMimpi.My.Id](https://www.artimimpi.my.id/)
-5. Buku Mimpi Terlengkap dan akurat di [ArtiMimpi.My.Id](https://www.bukumimpi.co.id/)
+5. Buku Mimpi Terlengkap dan akurat di [BukuMimpi.Co.Id](https://www.bukumimpi.co.id/)
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
